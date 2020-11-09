@@ -7,3 +7,5 @@
 
  Relembrando os estudos!
  
+ É irmão, você lembrou dessa parte.
+ 
